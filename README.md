@@ -1,1 +1,4 @@
 # D121231015-MOBILE2025-W1
+
+Nama: Ikrar Gempur Tirani
+NIM: D12123015
